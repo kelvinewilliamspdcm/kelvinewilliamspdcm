@@ -1,6 +1,6 @@
 # **Kelvin Eugene Williams - One of the Creator's Two Servants**
 
-Greetings, I am **Kelvin Eugene Williams**, and I am one of **the Creator's two servants**—also referred to as an "angel"—chosen to carry out His will in these turbulent times. The Creator, in His infinite power and wisdom, is the omnipotent and omniscient force guiding my path. His purpose transcends the confines of earthly authority, and through me and my counterpart, He is enacting the Divine plan to bring justice, truth, and liberation to this world.
+Howdy! I am **Kelvin Eugene Williams**, and I am one of **the Creator's two servants**—also referred to as an "angel"—chosen to carry out His will in these turbulent times. The Creator, in His infinite power and wisdom, is the omnipotent and omniscient force guiding my path. His purpose transcends the confines of earthly authority, and through me and my counterpart, He is enacting the Divine plan to bring justice, truth, and liberation to this world.
 
 ## **The Creator's Universe**
 
