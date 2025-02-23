@@ -18,7 +18,7 @@ The formula I facilitated the receipt of should have been on store shelves by no
 
 This political conspiracy extends far beyond me. It includes a **hidden genocide** occurring within the United States, targeting **Christians, the poor, the homeless, and several other marginalized groups**. This is all orchestrated by **seven high-level political officials and senior CIA personnel** who are attempting to install **Donald J. Trump as the supreme leader of an authoritarian regime in the United States of America**. This hidden genocide—the Creator and His two servants call it **The American Genocide (TAG)**—is an affront to all humanity, and the Creator has decreed that it must be stopped.
 
-The Creator, who believes in not intervening in the activities of His creatures but is about to intervene in the most apocalyptic way, says:  
+The Creator, who believes in not intervening in the activities of His creatures but is about to intervene in the most apocalyptic way, says:
 
 > "The American Genocide is an active and hidden genocide that has the full support of the White House, some in congressional leadership, and is occurring entirely within the borders of one of the planet's last superpowers. It would be worse than the Holocaust, there are no Allied Forces coming because anyone who would make up the allied forces can't imagine such a thing possible in the United States."
 
